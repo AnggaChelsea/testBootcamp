@@ -1,0 +1,1 @@
+Untuk mengenai soal no 4 ini saya telat membuka group telegram dan saya tidak banyak waktu . saya buka group telegram di jam 4 sore dan waktu tidak cukup untuk membuat system CRUD,, saya harapa bakalan ada perpanjangan waktu kedepannya dan memberikan kesempatan kepada saya
